@@ -1,32 +1,32 @@
 PLANO ALIMENTAR GABRIEL OLIVEIRA SILVA 
  
 Data: 05\06\2020
-|:------:|:------:|
+
 | HORÁRIO |	ALIMENTO |
 |:------:|:------:|
 |Desjejum 07:00	|1 xicara de café ou chá(infusão);
 ||OPÇÃO 1:2 ovos inteiros +1 pão francês+ 1 porção de fruta A ou B (olhar lista de substituição).|
 ||OPÇÃO 2:  Panqueca de banana - 2 Ovos+ 2 colheres de sopa de farinha de aveia + 2 bananas prata  + canela.   (pode fazer na frigideira ou no microondas).|
-|:------:|:------:|
+|Almoço 12:00|	120g de frango ou peixe  ou carne vermelha magra;|
+||150g de arroz integral ou mandioca ou batata doce ou batata baroa;|
+||60g de feijão;|
+||Vegetal do tipo A e B a vontade(olhar lista de substituição);|
+||1 colher de sopa de azeite extra virgem.|
+|Lanche 16:00|	1 unidade de iogurte Itambé Milk + 1\2 abacate médio  + 2 colheres de sopa de Mel. |
+|Jantar  20:00|	OPÇÃO 1: 2 ovos inteiros  +Vegetal A e B a vontade(olhar lista de substituição).|
+||OPÇÃO 2:  caldo de abobora moranga com frango. |
+||Ceia 23:00	60g de milho para pipoca;|
+||250ml de chá de camomila com mulungu(não adoçar nem com adoçante).|
 
-Almoço 12:00	120g de frango ou peixe  ou carne vermelha magra;
-150g de arroz integral ou mandioca ou batata doce ou batata baroa;
-60g de feijão;
-Vegetal do tipo A e B a vontade(olhar lista de substituição);
-1 colher de sopa de azeite extra virgem.
-Lanche 16:00	1 unidade de iogurte Itambé Milk + 1\2 abacate médio  + 2 colheres de sopa de Mel. 
-Jantar  20:00	OPÇÃO 1: 2 ovos inteiros  +Vegetal A e B a vontade(olhar lista de substituição).
-OPÇÃO 2:  caldo de abobora moranga com frango. 
-Ceia 23:00	60g de milho para pipoca;
-250ml de chá de camomila com mulungu(não adoçar nem com adoçante).
-ORIENTAÇÕES : 
-Sobremesa sugeridas: chocolate 70% cacau (quanto maior o teor do cacau melhor) , gelatina zero, goiabada sem açúcar, paçoquita diet, frutas secas.. entre outras receitas indicadas pela nutricionista;
-Evitar industrializados, embutidos , açúcar e sal em excesso;
-Dê preferência para alimentos naturais, comida de verdade..
-Adoçantes permitidos: stévia 100% , sucralose  e xylitol;
-Tempeiros indicados:  Ervas (Orégano, cheiro verde, salsinha, cebolinha..) , cúrcuma, curry, sal iodado, alho..
-Mastigar bem os alimentos;
-Modificar o modo de preparo dos alimentos para tornar a dieta mais palatável e diversificada, de acordo com as quantidades prescritas pela nutricionista. 
+|ORIENTAÇÕES : |
+|:------:|
+|Sobremesa sugeridas: chocolate 70% cacau (quanto maior o teor do cacau melhor) , gelatina zero, goiabada sem açúcar, paçoquita diet, frutas secas.. entre outras receitas indicadas pela nutricionista;|
+|Evitar industrializados, embutidos , açúcar e sal em excesso;|
+|Dê preferência para alimentos naturais, comida de verdade..|
+|Adoçantes permitidos: stévia 100% , sucralose  e xylitol;|
+|Tempeiros indicados:  Ervas (Orégano, cheiro verde, salsinha, cebolinha..) , cúrcuma, curry, sal iodado, alho..
+Mastigar bem os alimentos;|
+|Modificar o modo de preparo dos alimentos para tornar a dieta mais palatável e diversificada, de acordo com as quantidades prescritas pela nutricionista. |
 
 
 
